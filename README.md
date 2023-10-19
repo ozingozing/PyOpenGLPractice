@@ -1,1 +1,1 @@
-# Until the day I draw a Hu tao with OpenGL!!!
+# Until the day I draw Hu tao with OpenGL!!!
